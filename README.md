@@ -1,3 +1,3 @@
-# Gruppe_2
+# Gruppe 2
 
 Jeg hater folkehøyskoler.
