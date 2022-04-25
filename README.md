@@ -4,3 +4,4 @@ Jeg hater folkehøyskoler.
 
 Jeg også! ):<
 
+Jeg og >:(
